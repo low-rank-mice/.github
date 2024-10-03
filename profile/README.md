@@ -1,5 +1,5 @@
 ## 低rank鼠鼠交流群（简称：鼠群）
-这里是低rank鼠鼠交流群的Github仓库:grin: <br>
+这里是低rank鼠鼠交流群的Github仓库 :grin: <br>
 低rank鼠鼠交流群群号：626333094:blush: <br>
 rank指GPA/绩点/排名低:sob: <br>
 ### 鼠群简介
